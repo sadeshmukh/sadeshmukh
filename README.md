@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @sadeshmukh! I make random stuff here and there. Have been on the lockin for school recently, so no projects :(
+- 👋 Hi, I’m @sadeshmukh! I make random stuff here and there. 
